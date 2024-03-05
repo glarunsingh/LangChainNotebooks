@@ -1,1 +1,1 @@
-empty
+Course slides URL - https://drive.google.com/drive/folders/1Kh3-3-aS_xtYhK73sVeXNTyFGREgub_U
